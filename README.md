@@ -1,3 +1,0 @@
-# HENJESH
-thursday
-dairy01
